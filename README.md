@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ssk1ppy
-- 👀 I’m interested in computerstuff and gaming
+- 👀 I’m interested in computerstuff 
 - 📫 How to reach me by mail: Ivehvi03@gmail.com
 
 <!---
